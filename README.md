@@ -1,0 +1,1 @@
+# szoftvertechnologia_beadando
